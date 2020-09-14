@@ -11,3 +11,6 @@ Double-click on the setup.
 When prompted, select the Yes option.
 Allow the file to run.
 for more office.com/setup
+Twitter (@Twitter) · Twitter
+PLEASE WEAR A MASK ...also if someone can screenshot this and post it on IG that would be great
+Twitter · Sep 4, 2020
